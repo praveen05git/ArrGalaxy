@@ -16,3 +16,5 @@ ARR Casual Wallpapers
 ARR with his family wallpapers
 
 Wallpapers are provided by AR Rahman fans!!
+
+Available on Play Store: https://play.google.com/store/apps/details?id=com.hencesimplified.arrwallpaper
