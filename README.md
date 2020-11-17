@@ -42,7 +42,7 @@ Setup or Download Free and exclusive A.R.Rahman High-Quality wallpapers!!</br>
 Wallpapers are edited and provided by the fans of AR Rahman!!
 
 ## App Trailer
-Watch App trailer of Youtube: https://youtu.be/ysg5jiJ9sX4
+Watch App trailer on Youtube: https://youtu.be/ysg5jiJ9sX4
 
 ## Download
 Available on Play Store: https://play.google.com/store/apps/details?id=com.hencesimplified.arrwallpaper
